@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @vihangawijerathna
 - 👀 I’m interested in everything. LoL
 - 🌱 I’m currently learning Life :)
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on the projects ur looking for help in
 - 📫 How to reach me - vihangawijerathna1@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: Im funny fr fr . lol
 
 <!---
