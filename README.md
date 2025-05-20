@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the projects ur looking for help in
 - 📫 How to reach me - vihangawijerathna1@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Im funny fr fr . lol
+- ⚡ Fun fact: Im funny fr fr.
 
 <!---
 vihangawijerathna/vihangawijerathna is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
